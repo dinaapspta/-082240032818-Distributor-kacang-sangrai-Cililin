@@ -12,7 +12,7 @@ Hubungi kontak di Bawah ini
 
 https://kacangsangraikhascililin.blogspot.com/
 
-https://kuekeringnastarcimahi.blogspot.com/2024/12/082214297187kue-kering-nastar-cimahi.html
-
-https://github.com/dinaapspta/-082240032818-Distributor-kacang-sangrai-Cililin
+(https://kacangsangraikhascililin.blogspot.com/2024/12/082240032818kacang-sangria-pedas.html
+)
+ https://justpaste.it/a0ehh
 
